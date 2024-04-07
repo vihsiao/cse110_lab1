@@ -2,6 +2,8 @@
 
 **Second Year Undergrad Studying Math - Computer Science**
 
+![](pic_of_me.jpg)
+
 >"To learn to succeed you must learn to fail" - Michael Jordan
 
 ### Quick Facts
